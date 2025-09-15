@@ -1,4 +1,4 @@
-# E-com---Shopify-app
+# HARY-KIM-S-INTERTECH
 
 ## Overview
 
